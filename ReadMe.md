@@ -1,4 +1,4 @@
-This is evythining i have dug out
+This is everything i have dug out
 
 Open your eyes, Find your answer
 
